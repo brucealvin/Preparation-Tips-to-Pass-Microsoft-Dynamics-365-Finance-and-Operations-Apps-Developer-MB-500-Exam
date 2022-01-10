@@ -1,0 +1,1 @@
+# Preparation-Tips-to-Pass-Microsoft-Dynamics-365-Finance-and-Operations-Apps-Developer-MB-500-Exam
